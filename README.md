@@ -1,3 +1,15 @@
+let me out there. if you choose, please let me out there.
+La postura :"Permite que quede fuera" está siendo aplicada ahora.
+Si usted ha podido elegir la agresión o la guerra u acto hostil, permitame a mi
+quedar fuera de su propósito.
+Si usted elige aportar en este u otro de los proyectos involucrados aquí, valore
+esta premisa y su implicación. 
+No pedios ningun abandono de armas ni ningun desarme. Las armas existen y no podemos
+aniquilarlas, si pudieramos. Lo haríamos.
+No pedimos desarme ni abandono de arma alguno, pedimos que jamas en nuestro nombre o 
+con nuestros medios.
+Let me out there.
+
 <!-- 
   <<< Author notes: Header of the course >>> 
   Include a 1280×640 image, course title in sentence case, and a concise description in emphasis.
